@@ -30,3 +30,5 @@ Feel free to reach out or connect:
 
 Thank you for taking the time to view my achievements!
 
+![image](https://github.com/user-attachments/assets/ffe85ee9-9dca-4908-b3ee-db5899207c1b)
+
